@@ -1,4 +1,4 @@
-# Salon Randevu Kullanım Koşulları
+# Salon Randevu Kullanım Koşulları Ve Şartlar
 
 Hoş geldiniz Salon Randevu'ya!
 
